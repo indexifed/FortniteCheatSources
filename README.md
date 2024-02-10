@@ -1,4 +1,4 @@
-# FORTNITE RAGE CHEAT 
+# FORTNITE CHEAT 
 
 # Info 📝
 <ul><li>This original source was made by @Android1337</li><li>
